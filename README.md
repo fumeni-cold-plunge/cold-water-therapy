@@ -1,6 +1,8 @@
 # cold-water-therapy
 cold water therapy 
 https://fumeni.com/blogs/cold-plunge-water-therapy-tips-and-articles
+
+
 https://www.pinterest.com/fumenicoldplungetub/cold-plunge-benefits/
 https://500px.com/p/fumeni-cold-plunge
 https://the-dots.com/pages/fumeni-cold-plunge-651224
